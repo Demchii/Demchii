@@ -1,4 +1,0 @@
-- Hi, I’m Dem!
-- I’m interested in JJBA and Anime in general
-- I’m currently learning Russian, Italian and Japanese
-- Nice to meet you all! <3
